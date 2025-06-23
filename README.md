@@ -39,6 +39,15 @@ This is a dynamic e-commerce platform where **every user can act as both a selle
 <img width="394" alt="image" src="https://github.com/user-attachments/assets/3903dc6e-9122-4c7e-b309-439634b8801c" />
 <img width="437" alt="image" src="https://github.com/user-attachments/assets/f4114f1b-9eaa-4d1a-8444-15a00ffb3f33" />
 <img width="428" alt="image" src="https://github.com/user-attachments/assets/3ba703b9-7e69-4314-8b97-097b92e5f50f" />
+![WhatsApp Image 2025-06-23 at 15 15 47_0f8c697d](https://github.com/user-attachments/assets/96bdb903-b139-4b5c-9942-fb60d2980642)
+<img width="398" alt="image" src="https://github.com/user-attachments/assets/3b8c3af4-39aa-4203-aa2d-cac4ee5b5fa5" />
+<img width="407" alt="image" src="https://github.com/user-attachments/assets/94053629-f32e-4499-a0f3-c0878488ba57" />
+<img width="413" alt="image" src="https://github.com/user-attachments/assets/1c2701f7-d8f1-49eb-8cf1-c7a1e707be59" />
+<img width="419" alt="image" src="https://github.com/user-attachments/assets/3cf958fa-dda2-4de5-8cd1-91004e582bf9" />
+<img width="407" alt="image" src="https://github.com/user-attachments/assets/3ae5f807-efb6-4807-8791-48cbc3df74d8" />
+<img width="416" alt="image" src="https://github.com/user-attachments/assets/2a25b51d-5259-4d36-9385-975b9bacc934" />
+<img width="410" alt="image" src="https://github.com/user-attachments/assets/7f87b769-656a-413e-a22e-3d9cde11c8c8" />
+<img width="392" alt="image" src="https://github.com/user-attachments/assets/301c2262-e05e-47d1-8a7e-cad16bd17ac1" />
 
 
 ---
